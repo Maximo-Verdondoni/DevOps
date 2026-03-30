@@ -1,3 +1,0 @@
-### Biografia
-
-Soy maximo verdondoni
